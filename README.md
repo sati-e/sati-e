@@ -1,4 +1,5 @@
 - 👀 Aprendendo programação
 - 🌱 Estudando java e python
-- 📫 Email de contado: satiepavdul@gmail.com
+- 📫 Email de contado: satiepavdul@gmail.com /
+- linkedin: https://www.linkedin.com/feed/
 - 😄 Pronomes: ela/dela

@@ -1,5 +1,5 @@
 - 👀 Aprendendo programação
 - 🌱 Estudando java e python
 - 📫 Email de contado: satiepavdul@gmail.com /
-- 🔗 Linkedin: [https://www.linkedin.com/feed/](https://www.linkedin.com/in/satie-chirico-211a2a270/)https://www.linkedin.com/in/satie-chirico-211a2a270/
+- 🔗 Linkedin: [[[https://www.linkedin.com/feed/](https://www.linkedin.com/in/satie-chirico-211a2a270/)https://www.linkedin.com/in/satie-chirico-211a2a270/](https://encurtador.com.br/isSX0)https://encurtador.com.br/isSX0](https://encurtador.com.br/stuJO)https://encurtador.com.br/stuJO
 - 😄 Pronomes: ela/dela

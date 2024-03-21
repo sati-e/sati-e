@@ -1,5 +1,5 @@
 - 👀 Aprendendo programação
 - 🌱 Estudando java e python
 - 📫 Email de contado: satiepavdul@gmail.com /
-- linkedin: https://www.linkedin.com/feed/
+- 🔗 Linkedin: [https://www.linkedin.com/feed/](https://www.linkedin.com/in/satie-chirico-211a2a270/)https://www.linkedin.com/in/satie-chirico-211a2a270/
 - 😄 Pronomes: ela/dela

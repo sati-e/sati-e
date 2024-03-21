@@ -1,4 +1,4 @@
 - 👀 Aprendendo programação
-- 🌱 Estudando C# e python
+- 🌱 Estudando java e python
 - 📫 Email de contado: satiepavdul@gmail.com
 - 😄 Pronomes: ela/dela

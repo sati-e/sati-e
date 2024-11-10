@@ -6,7 +6,7 @@
 </p>
 
 👀 Learning programming <br>
-🌱 Studying Python 🐍<br>
+🌱 Studying JS & Python 🐍<br>
 📫 Contact email: satiepavdul@gmail.com<br>
 😄 Pronouns: she/her<br>
 
